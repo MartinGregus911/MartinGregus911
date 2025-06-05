@@ -16,5 +16,5 @@
 - 🔍 I enjoy understanding how things break, whether it’s code, silicon, or design
 
 #### 📫 Reach Me
-- 📨 Find me here on GitHub or on (https://www.linkedin.com/in/martingregus/)
+- 📨 Find me here on GitHub or on (https://www.linkedin.com/in/martingregus/) also here (https://www.facebook.com/profile.php?id=61561254895076)
 - 😄 Pronouns: he/him
